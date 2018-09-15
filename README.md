@@ -1,0 +1,2 @@
+# TECHNICS
+for learning
